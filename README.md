@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Raj Dutta 
-**A passionate Cloud Engineer || DevOps Engineer || Full Stack Developer**
+**A passionate Cloud Engineer || DevOps Engineer || Full Stack Developer || Designer**
 
 Email Me 👉 ✉️ **duttaraj924@gmail.com**😊😊
 
